@@ -1,0 +1,1 @@
+# OMG I'm gonna be SQL genius when I finish this tutorial. :open_mouth:
